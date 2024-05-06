@@ -1,1 +1,1 @@
-# freestyle1 sab ki ma ka bsdk
+# freestyle1 fridon is cute
