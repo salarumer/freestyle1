@@ -1,2 +1,2 @@
-# freestyle1 fridon is cute
+# freestyle1 fridon is cutee
  
